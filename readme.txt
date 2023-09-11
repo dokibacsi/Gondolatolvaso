@@ -1,1 +1,1 @@
-Katona Valentin | Szlanka Péter | Vinczeffy Gergely
+Katona Valentin | Keresztes Hunor
